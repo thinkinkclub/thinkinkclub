@@ -2,7 +2,7 @@
 - 👀 I’m interested in books/cinema/poetry
 - 🌱 I’m currently learning writing
 - 💞️ I’m looking to collaborate on creative pursuits
-- 📫 How to reach me thethinkinkclub(@).gmail.com
+- 📫 How to reach me thethinkinkclub(@)gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
